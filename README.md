@@ -1,0 +1,2 @@
+# escuraofficial.com
+Escura Official
